@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Miguel Tanaka 
+#  Miguel Tanaka 
 
 **`Desenvolvedor`**
 
